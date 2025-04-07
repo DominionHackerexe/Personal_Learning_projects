@@ -1,0 +1,1 @@
+This folder and it's contents/program(s) are based on programs my dad used to teach us when we were younger😎
